@@ -245,7 +245,7 @@ VPN群组
 4. 👥全网最全无码/女同/国产/萝莉/处女/抖音/学生主播/当红女优/鉴黄-黄瓜视频 [https://t.me/tongnv](https://t.me/tongnv)
 5. 👥全网最全AV福利/色情无码/偷拍学生/H动漫/当红女优/抖音短视频/国产-黄瓜视频 [https://t.me/nvAVhg](https://t.me/nvAVhg)
 6. 👥同城约炮全国楼凤兼职小姐单干信息白领少妇学生丝袜护士空姐没鸡头赚差价外围私人外围女修车大队丝足模特同城约会约炮啪啪啪老司机开车福利私人丝足怡红院会馆援交陪游出差商务俱乐部群组 [https://t.me/xingxi2](https://t.me/xingxi2)
-7. 👥外围女模特全国一二线城市商务模特同城美女小姐约炮啪啪援交学生妹微信群私人会所交友私拍伴游约炮俱乐部 [https://t.me/tmetme8](https://t.me/tmetme8)
+7. 👥外围女模特全国一二线城市商务模特同城美女小姐约炮啪啪援交学生妹微信群私人会所交友私拍伴游约炮俱乐部 [https://t.me/waiweinv.vip](https://t.me/waiweinv.vip)
 8. 👥全国外围女 | 模特 | 学生 | 空姐 | 白领 | 良家女孩 | 小姐姐 | 兼职女 | 护士| 高中生 | 大学生 [https://t.me/waiweinvhai](https://t.me/waiweinvhai)
 9. 👥大学生的杂货店 [https://t.me/studentsStore](https://t.me/studentsStore)
 10. 👥女大学生深夜裸聊群 [https://t.me/tuitui88888](https://t.me/tuitui88888)
@@ -262,7 +262,7 @@ VPN群组
 
 空姐群组
 1. 👥同城约炮全国楼凤兼职小姐单干信息白领少妇学生丝袜护士空姐没鸡头赚差价外围私人外围女修车大队丝足模特同城约会约炮啪啪啪老司机开车福利私人丝足怡红院会馆援交陪游出差商务俱乐部群组 [https://t.me/xingxi2](https://t.me/xingxi2)
-2. 👥全国外围女 | 模特 | 学生 | 空姐 | 白领 | 良家女孩 | 小姐姐 | 兼职女 | 护士| 高中生 | 大学生 [https://t.me/waiweinvhai](https://t.me/waiweinvhai)
+2. 👥全国外围女 | 模特 | 学生 | 空姐 | 白领 | 良家女孩 | 小姐姐 | 兼职女 | 护士| 高中生 | 大学生 [https://t.me/waiweinv.vip](https://t.me/waiweinv.vip)
 3. 👥成人，空姐，自拍，爱爱，小视频 [https://t.me/se636](https://t.me/se636)
 4. 👥马尼拉 群组 自拍 萝莉 伦理 交流 老司机 空姐 SM 福利 审美 频道 分享 技术 资源 机场 黑产 灰产 音乐 电影 经济 股票黄色 色情 美女 胴体 开车 91 AV 女优 鉴黄 外围 同城 模特 约会 啪啪啪 [https://t.me/nc1688](https://t.me/nc1688)
 5. 👥制服空姐醫生老師國產日本香港性趣片 [https://t.me/yellow699](https://t.me/yellow699)
